@@ -1,5 +1,5 @@
 # Hi, I’m Jeffrey!
-# im trying, nothing more!
+# just trying some private stuff!
 # ;-)
 
 
